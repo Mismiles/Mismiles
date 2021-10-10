@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **muhammadirfan123@gmail.com**
 
-- ⚡ Fun fact **I'm played in Tottenham Hotspurs' ground in an NHS appreciation football game.**
+- ⚡ Fun fact **I've played in Tottenham Hotspurs' ground in an NHS appreciation football game.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
